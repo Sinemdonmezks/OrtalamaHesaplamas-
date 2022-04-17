@@ -1,1 +1,1 @@
-# OrtalamaHesaplamas-
+# www.patika.dev
